@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://bit.ly/updatessept1](https://bit.ly/updatessept1)
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:</h3> https://www.linkedin.com/in/nitin-pandey-894945214/
 <p align="left">
 </p>
 
